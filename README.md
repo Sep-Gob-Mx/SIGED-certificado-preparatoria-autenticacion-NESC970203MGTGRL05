@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NESC970203MGTGRL05
+NESC970203MGTGRL05
